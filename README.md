@@ -10,7 +10,7 @@ How to code lol....
 Anything
 
 - 📫 How to reach me ...
-I don't have a phone lol (14yrs old ppl)
+n/a
 
 <!---
 bluiwBible/bluiwBible is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
